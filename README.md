@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-I currently work as a Senior Software Consultant at [Stride Consulting](https://stridenyc.com). I keep an archive of everything I do on the internet at [stephen.fyi](https://stephen.fyi). 
+I'm Stephen. I'm a Texan living in New York City. I work as a Senior Software Consultant at [Stride Consulting](https://stridenyc.com). And I keep an archive of everything I do on the internet at [stephen.fyi](https://stephen.fyi). 
